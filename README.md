@@ -1,6 +1,7 @@
 -  Hi, I’m @szengTx
 -  I’m interested in Indie Game Production and Digital Painting
-- Email:3803918661
+- Email:1901584101@qq.com
+- 
 
 
 <!---
